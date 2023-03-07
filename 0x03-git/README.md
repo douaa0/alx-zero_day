@@ -1,1 +1,1 @@
-my second readmi
+i hate my life :poop:
